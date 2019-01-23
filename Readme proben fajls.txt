@@ -1,5 +1,3 @@
 Martin todoroski prv komit
 
 \
-
-\\
