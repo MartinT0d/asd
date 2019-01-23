@@ -1,1 +1,0 @@
-Martin todoroski prv komit
